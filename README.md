@@ -2,7 +2,7 @@
 - 👀 I’m interested in reading, data analyst, statistics, research, reporting, languages
 - 🌱 I’m currently learning data analyast
 - 💞️ I’m looking to collaborate on data analysis projects, particularly those involving [specific topics or datasets].
-- 📫 How to reach me on samaheriqat@yahoo.com, WhatApp: 00970-569870987
+- 📫 How to reach me on samaheriqat@gmail.com, WhatApp: 00970-569870987
 
 
 <!---
